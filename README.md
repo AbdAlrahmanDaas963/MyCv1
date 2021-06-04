@@ -1,2 +1,0 @@
-# MyCv1
-hehe
